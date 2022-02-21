@@ -4,7 +4,7 @@ interested in web3 infrastructure projects
 
 learning rust, c++, js
 
-collaborate on: not much atm, big fan of avax atm though. very promising.
+collaborate on: not much atm, avax looks interesting though.
 
 how to reach me: reply to this
 
